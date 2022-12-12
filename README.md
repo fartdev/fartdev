@@ -1,1 +1,1 @@
-<img src="https://images-ext-1.discordapp.net/external/3fKsGo8d7pz7l5c9SRJaTXibKbKOBNECnxKKL4bOhPI/https/media.discordapp.net/attachments/908783342550401066/955437696191447100/caption.gif?width=233&height=477" alt="fastbear" width="500" height=9000/>
+
